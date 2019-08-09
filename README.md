@@ -1,0 +1,1 @@
+- [Ramon Torras: Catalanisme i violència falangista el 1961](https://web.archive.org/web/20190809205118/https://www.diaridesabadell.com/2018/09/06/ramon-torras-i-i-ii-per-joaquim-clusa/), Joaquim Clusa (Diari de Sabadell — 30 d'Agost a 1 de Setembre del 2018)
