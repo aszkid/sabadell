@@ -5,3 +5,5 @@
 - [SARA MUR ESTADA, JOAQUIM CLUSA ORIACH — Testimonios para la Historia](https://web.archive.org/web/20190809210841/http://www.testimoniosparalahistoria.com/entrevista/sara-mur-estada-joaquim-clusa-oriach/). PC, 19è VOLUM. Impuls immobiliari (2007).
 - [Juan Gómez (1945-1971) y la revista 'Can Oriach'](http://web.archive.org/web/20190809211203/https://www.isabadell.cat/sabadell/historia/juan-gomez-1945-1971-y-la-revista-can-oriach/). Antonio Santamaria (iSabadell — 17 de juny del 2018).
 - [Sabadell](http://web.archive.org/web/20190809212943/https://www.enciclopedia.cat/EC-GEC-0057505.xml). JCO (Joaquim Clusa Oriach) / AGM (A. Garriga) / PRG (?). (Enciclopèdia Catalana — 1979..?).
+- [Las primeras elecciones municipales (1979)].(http://web.archive.org/web/20190809213535/https://www.isabadell.cat/sabadell/historia/las-primeras-elecciones-municipales-1979/). Antonio Santamaria (iSabadell — 7 d'abril del 2019).
+- [Ache y Pericón](http://web.archive.org/web/20190809221847/https://elpais.com/diario/2009/04/22/catalunya/1240362440_850215.html). Ignacio Vidal-Folch (El País — 22 d'abril del 2009).
